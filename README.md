@@ -12,7 +12,7 @@
 ᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠ<a href="https://ibb.co/jXnDkx6"><img src="https://i.ibb.co/H85qTMF/71-20250707203512.png" alt="71-20250707203512" border="0"></a>
 ᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠ︵۫ .  ⏜╭۫ ᥀ ✶ ᭡ ╮۫⏜۫ . ︵
 
-ᅠᅠᅠᅠᅠᅠᅠᅠᅠmy main fandoms is ghost band<a href="https://ibb.co/LzygtBBy"><img src="https://i.ibb.co/wNqQW88q/733be3675da071b6c68649df20144ca1.jpg" width=30 alt="733be3675da071b6c68649df20144ca1" border="0"></a> ;; sleep token<a href="https://ibb.co/YBg6hyN2"><img src="https://i.ibb.co/3mKwcMT1/87-20250707210312.png" width=30 alt="87-20250707210312" border="0"></a> aaand forsaken<a href="https://imgbb.com/"><img src="https://i.ibb.co/Kj5nD3kP/Blue-BJohn.png" width=30 alt="Blue-BJohn" border="0"></a>
+ᅠᅠᅠᅠᅠᅠᅠᅠᅠmy main fandoms is ghost band<a href="https://ibb.co/LzygtBBy"><img src="https://i.ibb.co/wNqQW88q/733be3675da071b6c68649df20144ca1.jpg" width=30 alt="733be3675da071b6c68649df20144ca1" border="0"></a> ;; sleep token<a href="https://ibb.co/YBg6hyN2"><img src="https://i.ibb.co/3mKwcMT1/87-20250707210312.png" width=30 alt="87-20250707210312" border="0"></a> aaand forsaken<a href="https://imgbb.com/"><img src="https://i.ibb.co/Kj5nD3kP/Blue-BJohn.png" width=30 alt="Blue-BJohn" border="0"></a> and marvel i love tony stark
 
 <---- more information(only russ)
 
